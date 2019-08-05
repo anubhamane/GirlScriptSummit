@@ -1,2 +1,2 @@
-# workshop
+# GirlScript India Summit 2019
  
